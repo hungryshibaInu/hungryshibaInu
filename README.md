@@ -1,6 +1,6 @@
 ### Hungry, Hungry, Hangry! 🥘
 
---- [Click here for my CV! 😀](https://github.com/hungryshibaInu/hungryshibaInu/files/8378677/CV.Prom.Prompichan.pdf) ---
+--- [Click here for my CV! 😀](https://github.com/hungryshibaInu/hungryshibaInu/files/10436223/CV-Prom.Prompicharn.pdf) ---
 
 
 <!--
