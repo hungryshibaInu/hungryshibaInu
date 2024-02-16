@@ -1,7 +1,6 @@
 ### Hungry, Hungry, Hangry! 🥘
 
---- [Click here for my CV! 😀](https://github.com/hungryshibaInu/hungryshibaInu/files/10436223/CV-Prom.Prompicharn.pdf) ---
-
+--- [Click here for my CV! 😀](https://github.com/hungryshibaInu/hungryshibaInu/files/14307565/Resume-Prom.Prompicharn.pdf) ---
 
 <!--
 **hungryshibaInu/hungryshibaInu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
